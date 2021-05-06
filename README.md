@@ -1,2 +1,2 @@
-# self-designed
-self designed
+# YOUR-OWN-INFINITE-GAME-
+YOUR OWN INFINITE GAME 
